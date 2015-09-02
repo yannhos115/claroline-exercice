@@ -1,0 +1,1 @@
+ajout d'image dans les exercices de claroline
